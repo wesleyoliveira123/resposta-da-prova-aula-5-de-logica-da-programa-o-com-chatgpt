@@ -1,0 +1,1 @@
+# resposta-da-prova-aula-5-de-logica-da-programa-o-com-chatgpt
